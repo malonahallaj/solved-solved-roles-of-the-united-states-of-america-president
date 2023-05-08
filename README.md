@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-roles-of-the-united-states-of-america-president
+<br>
+Student Name Instructor name POLS 2101005 May 27th 2015 Roles of the United States of America President The president is supposed to implement a number of obligations as being part of his office. Even though the Constitution cites several of these obligations, other duties have developed with time. By what xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
